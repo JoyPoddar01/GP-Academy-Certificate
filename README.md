@@ -1,0 +1,1 @@
+In this course, I learned the fundamentals of using LinkedIn professionally. I gained a clear understanding of how to structure each section of a LinkedIn profile to make it look organized and professional. I also learned how to connect effectively with different people and how to create professional posts that increase visibility and engagement.
